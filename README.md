@@ -1,0 +1,2 @@
+# SES
+METİN KONUŞMA
